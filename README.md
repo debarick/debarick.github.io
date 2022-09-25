@@ -1,1 +1,0 @@
-# debarick.github.io
